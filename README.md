@@ -1,4 +1,4 @@
-### Hi there i'm Ahmed 👋
+### Hi i'm Ahmed 👋
 # :dizzy: About Me:
 :telescope: I’m currently learning computer vision and Machine learning<br>:handshake: I’m looking for New Friends<br>:speech_balloon: Ask me about Anything<br>:zap: My Discord : Konafa |コナファ
 
